@@ -1,6 +1,6 @@
 
 
-###### <p align="right"> BLEHHHH </p>
+###### <p align="center"> BLEHHHH </p>
  <p align="right"> spam follow acc!!!! </p>
  <p align="right"> more info on main </p>
  
