@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&duration=5001&pause=990&color=F76CA9&multiline=true&width=435&height=75&lines=you+look+nice%2Cbabe;don't+think+twice%2Cmaybe)](https://git.io/typing-svg)
 
 ###### <p align="center"> hihi if i have this linked dont int with me unless ur winnie or zev, </p>
 <p align="center"> // <a>
@@ -7,4 +8,3 @@
  
  ![](https://github.com/blessthebeach/idkbro/blob/main/ymi-ymis.gif)
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&duration=5001&pause=990&color=F76CA9&multiline=true&width=435&height=75&lines=you+look+nice%2Cbabe;don't+think+twice%2Cmaybe)](https://git.io/typing-svg)
