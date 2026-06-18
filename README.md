@@ -4,7 +4,7 @@
 
 <img src= https://github.com/blessthebeach/blessthebeach/blob/main/Untitled50_20260618174126.png />
 
-<p align="center"> $\color{#ec6794}{\textsf{'beneath the ledge, in the morning 𝙢𝙞𝙨𝙩}}$ </p>
+<p align="center"> $\color{#ec6794}{\textsf{'beneath the ledge, in the morning 𝙢𝙞𝙨𝙩'}}$ </p>
 
 <img src= https://github.com/blessthebeach/blessthebeach/blob/main/Untitled42_20260618173806.png />
 
